@@ -1,0 +1,1 @@
+## Test uchun P24 guruhing brinchi darsda ochildi
